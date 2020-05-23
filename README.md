@@ -27,7 +27,7 @@ Our motives are not from our human plan, need or capacity but from the Spirit of
 We are a teachable and relational people: we do not passively wait for leaders to correct us, but we actively and humbly seek feedback and ways to grow. We therefore stay aware of and take responsibility for the impact we are having on the people around us. 
 
 
-## Member of PAMA Mission 
+## Member of PAMA Mission: https://www.pamaglobal.com/
 ### Welcome  to Eglise Vivante Nyarugunga 
 _Ihumure_TVET_
 [Link](www.eglisevivante) and [Image] (src)
