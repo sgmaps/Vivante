@@ -9,7 +9,6 @@ They will rebuild the ancient ruins and restore the places long devastated; they
 We spread hope and healing to God’s people by building up relational believers and renewing our communities so that they are equipped holistically in education, in health and spiritual development.
 
 ## Core Values
-
 We are hospitality driven people: We purposely create safe spaces for all people including enemies so that they are inclined to become friends.
 We understand that every person was created in God’s image and therefore should be treated with dignity.
 We embrace and welcome all people to participate with us in the ministry of healing and reconciliation.
@@ -26,7 +25,6 @@ We humbly serve our people: We recognize that we completely depend on God for wh
 Our strength comes from God’s presence and power.
 Our motives are not from our human plan, need or capacity but from the Spirit of God
 We are a teachable and relational people: we do not passively wait for leaders to correct us, but we actively and humbly seek feedback and ways to grow. We therefore stay aware of and take responsibility for the impact we are having on the people around us. 
-
 
 
 ## Member of PAMA Mission 
