@@ -30,5 +30,4 @@ We are a teachable and relational people: we do not passively wait for leaders t
 ## Member of PAMA Mission: https://www.pamaglobal.com/
 ### Welcome  to Eglise Vivante Nyarugunga 
 _Ihumure_TVET_
-[Link](www.eglisevivante) and [Image] (src)
-[Link](url) and ![Image](src)
+www.eglisevivante.org
